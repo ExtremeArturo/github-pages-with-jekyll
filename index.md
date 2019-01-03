@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Arturo Tha Cuban
 
-I'm glad you are here. I plan to talk about ...
+Arturo is a front-line anti-racism activist, essayist, and upcoming author; advocating for equality, justice, and accountability.
